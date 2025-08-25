@@ -8,3 +8,4 @@
 
 # Bên cạnh việc chuẩn bị hồ sơ cá nhân, sinh viên cũng nên tìm hiểu kỹ về quy định nhập cảnh và lưu trú tại Đài Loan, bao gồm các yêu cầu về bảo hiểm du lịch, tiêm chủng và các quy định phòng chống dịch nếu có. Hiểu rõ các quy định này sẽ giúp bạn tránh các sai sót không đáng có và tăng khả năng được cấp visa một cách suôn sẻ. Thêm vào đó, việc chuẩn bị một kế hoạch tài chính chi tiết, giải trình rõ ràng nguồn gốc tiền và mục đích sử dụng trong thời gian lưu trú sẽ giúp hồ sơ của bạn thuyết phục hơn trước cơ quan lãnh sự.
 
+# Để biết hướng dẫn chi tiết và các kinh nghiệm thực tế khi xin visa, bạn có thể tham khảo tại: https://dichvutaichinh.vn/xin-visa-du-lich-dai-loan-cho-sinh-vien.html
